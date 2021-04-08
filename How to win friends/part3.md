@@ -20,3 +20,7 @@ When we are wrong, we may admit it to ourselves. And if we are handled gently an
 
 Don't tell them they are wrong, don't get them stirred up. Use a little diplomacy.
 
+
+
+## Principle 3 If you are wrong, admit it quickly and emphatically
+
