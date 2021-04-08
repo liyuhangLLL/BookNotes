@@ -1,0 +1,22 @@
+# How to Win People to Your Way of Thinking
+
+
+
+## Principle 1 The only way to get the best of an argument is to avoid it.
+
+Nine times out ten, an argument ends with each of the contestants more firmly convinced than ever that he is absolutely right.
+
+But as soon as his importance was admitted and the argument stopped and he was permitted to expand his ego,he became a sympathetic and kindly human being.
+
+
+
+## Principle 2 Show respect for the other person's opinions. Never say, "You're wrong"
+
+If you are going to prove anything, don't let anybody know it. Do it so subtly, so adroitly, that no one will feel that you are doing it.
+
+You will never get into trouble by admitting that you may be wrong. That will stop all argument and inspire your opponent to be just as fair and open and broadminded as you are.
+
+When we are wrong, we may admit it to ourselves. And if we are handled gently and tactfully, we may admit it to others and even take pride in our frankness and broad-mindedness. But not if someone else is trying to ram the unpalatable fact down our esophagus.
+
+Don't tell them they are wrong, don't get them stirred up. Use a little diplomacy.
+
