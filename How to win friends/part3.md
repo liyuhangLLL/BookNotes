@@ -24,3 +24,8 @@ Don't tell them they are wrong, don't get them stirred up. Use a little diplomac
 
 ## Principle 3 If you are wrong, admit it quickly and emphatically
 
+## Principle 4 Being in a  friendly way
+
+A drop of  honey catches more flies than a gallon of gall.
+
+If a man's heart is rankling with discord and ill feeling toward you, you can't win him your way of thinking with all the logic.
