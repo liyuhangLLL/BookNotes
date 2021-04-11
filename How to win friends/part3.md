@@ -36,3 +36,8 @@ It is of the very greatest importance that a person be started in the affirmativ
 
 In talking with people, don't begin by discussing the things on which you differ. Begin by emphasizing -- and keep on emphasizing -- the things on which you agree.
 
+## Principle 6  Let the other person do a great deal of the talking.
+
+Let the other people talk themselves out.
+
+Because when our friends excel us, they feel important; but when we excel them, they-- or at least some of them -- will feel inferior and envious.
