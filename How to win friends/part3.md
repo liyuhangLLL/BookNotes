@@ -29,3 +29,10 @@ Don't tell them they are wrong, don't get them stirred up. Use a little diplomac
 A drop of  honey catches more flies than a gallon of gall.
 
 If a man's heart is rankling with discord and ill feeling toward you, you can't win him your way of thinking with all the logic.
+
+## Principle 5 Get the other saying "yes, yes" immediately
+
+It is of the very greatest importance that a person be started in the affirmative direction.
+
+In talking with people, don't begin by discussing the things on which you differ. Begin by emphasizing -- and keep on emphasizing -- the things on which you agree.
+
