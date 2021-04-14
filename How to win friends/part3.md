@@ -63,3 +63,18 @@ The fact is that all people you meet have a high regard for themselves and like 
 But all of us, being idealists at heart, like to think of motives that sound good. So, in order to change people, appeal to the nobler motives.
 
 People are honest and want to discharge their obligations.
+
+## Principle 11 Dramatize your ideas
+
+The truth has to be made vivid, interesting, dramatic.
+
+You can dramatize your ideas in business or in any other aspect of your life.
+
+## Principle 12 Thrown down a challenge
+
+The way to get things done is to stimulate competition. The desire to excel.
+
+The one major factor that motivated people was the work itself. If the work was exciting and interesting, the worker looked forward to doing it and was motivated to do a good job.
+
+The chance to prove his or her worth, to excel, to win.
+
