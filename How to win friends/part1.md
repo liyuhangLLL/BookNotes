@@ -34,7 +34,7 @@ The only way on earth to influence other people is to talk about what they want 
 
 if there is any one secret of success, it lies in the ability to get the other person's point of view and see things from that person's angle as well as from your own.
 
-The world is full of people  who are grabbing and self-seeking. So the rare individual who unselfishly tries to serve others has an enormous advantage.
+The world is full of people who are grabbing and self-seeking. So the rare individual who unselfishly tries to serve others has an enormous advantage.
 
 First, arouse in the other person an eager want. He who can do this has the whole world with him. He who cannot walks a lonely way.
 
